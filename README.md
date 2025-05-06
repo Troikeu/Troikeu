@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to use the Adobe suite and all programs like those
 - 💞️ I’m looking to collaborate on icons , writing projects , worldbuildings , visuals creations with studios , modding teams, and all 
 - 📫 How to reach me : Discord #troikeu , Github 
-- 😄 Pronouns: He/His
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: im a sucker for Plushies
 
 <!---
